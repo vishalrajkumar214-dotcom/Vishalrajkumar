@@ -10,9 +10,8 @@
 ### 💻 About Me
 I’m a **Engineer** AI & ML student at PDA College of Engineering, passionate about technology, coding, and learning new innovations in artificial intelligence.
 Reach me at: **vishalrajkumar214@gmail.com**
-
--https://www.instagram.com/_vishal.214?igsh=aTJmZXU5NzhiNjMy.[![YouTube]https://youtube.com/@nvishal1716?si=84jgI5dCFapjUSId
-
+🌐 Social
+[Instagram]-https://www.instagram.com/_vishal.214?igsh=aTJmZXU5NzhiNjMy.[![YouTube]https://youtube.com/@nvishal1716si=84jgI5dCFapjUSId
 
 
 ---
