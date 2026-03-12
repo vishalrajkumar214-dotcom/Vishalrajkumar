@@ -8,9 +8,7 @@
 ---
 
 ### 💻 About Me
-I’m a **Software Developer** currently building modern and responsive websites.  
-Passionate about **creating efficient web applications** and **digital marketing**.  
-Exploring new technologies and improving my **full-stack** and **machine learning** skills.  
+I’m a **Engineer** AI & ML student at PDA College of Engineering, passionate about technology, coding, and learning new innovations in artificial intelligence.
 Reach me at: **vishalrajkumar214@gmail.com**
 
 ---
