@@ -13,7 +13,7 @@ Reach me at: **vishalrajkumar214@gmail.com**
 
 ---
 ## 🌐 Socials
-[![Instagram]. https://www.instagram.com/_vishal.214?igsh=aTJmZXU5NzhiNj.[![YouTube]https://youtube.com/@nvishal1716?si=84jgI5dCFapjUSId
+[![Instagram].https://www.instagram.com/_vishal.214?igsh=aTJmZXU5NzhiNj.[![YouTube]https://youtube.com/@nvishal1716?si=84jgI5dCFapjUSId
 
 
 
